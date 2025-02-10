@@ -1,7 +1,7 @@
 <p align="center"> <img width="30" height="20" src="https://files.catbox.moe/ap0lvv.gif"> Hello everyone. <img width="30" height="20" src="https://files.catbox.moe/rgbwa9.gif">
   
 <p align="center">
-  <img width="840" height="40" src="https://adriansblinkiecollection.neocities.org/dividers/firedivider.gif">
+  <img width="840" height="60" src="https://files.catbox.moe/mydrm0.webp">
 </p>
 
 <p align="center"> My name is Fegelein. Hermann Fegelein. As I know better than to join a suicide pact, I have attempted to go into hiding approximately 80 years ago. The hesitation got to me, because I could say I was definitely a celebrity around the Führerbunker.
@@ -33,7 +33,7 @@
   <img width="815" height="30" src="https://64.media.tumblr.com/4f9a34cf902525f47a713b90ca9747b9/8437f27d591430a9-8b/s400x600/ff20cd0ed250dcc4e9f7e2d658c1c9aaeaa39bf8.gifv">
 </p>
 
-<p align="center"> <img width="20" height="20" src="https://xyz.crd.co/assets/images/gallery11/e58e1f2d.gif?v=de6feabd"> This is my best friend, Himmler. I can tell he returns the sentiment from the way he speaks with me. <img width="20" height="20" src="https://xyz.crd.co/assets/images/gallery11/e58e1f2d.gif?v=de6feabd">
+<p align="center"> This is my best friend, Himmler. I can tell he returns the sentiment from the way he speaks with me.
   <img width="830" height="500" src="https://media.giphy.com/media/b4zkw4IEg8vEct5tAP/giphy.gif">
 </p>
 
