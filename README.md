@@ -33,10 +33,12 @@
   <img width="815" height="30" src="https://64.media.tumblr.com/4f9a34cf902525f47a713b90ca9747b9/8437f27d591430a9-8b/s400x600/ff20cd0ed250dcc4e9f7e2d658c1c9aaeaa39bf8.gifv">
 </p>
 
-<p align="center"> This is my best friend, Himmler. I can tell he returns the sentiment from the way he speaks with me.
+<p align="center"> <img width="22" height="22" src="https://watermelon.crd.co/assets/images/gallery02/25b08d27.gif?v=58fed03f"> ‎ This is my best friend, Himmler. I can totally tell he returns the sentiment from the way he speaks with me.
   <img width="830" height="500" src="https://media.giphy.com/media/b4zkw4IEg8vEct5tAP/giphy.gif">
 </p>
 
 <p align="center">
   <img width="810" height="30" src="https://64.media.tumblr.com/4f9a34cf902525f47a713b90ca9747b9/8437f27d591430a9-8b/s400x600/ff20cd0ed250dcc4e9f7e2d658c1c9aaeaa39bf8.gifv">
 </p>
+
+<p align="center"> I appreciate conversations, I don't bite. :^)
